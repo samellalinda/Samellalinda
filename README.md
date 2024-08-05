@@ -7,4 +7,4 @@
 -amo meus amigos e minha escola 🥰
 
 
-![.](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftecnoblog.net%2Farquivo%2F175783%2Fgoogle-resposta-reporter-gif%2F&psig=AOvVaw1Vp-2tguOvB19sQQf-kRBi&ust=1722954263082000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCNDxhfqG3ocDFQAAAAAdAAAAABAE)
+![.](https://files.tecnoblog.net/wp-content/uploads/2015/03/8551.gif)
