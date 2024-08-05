@@ -2,7 +2,7 @@
 
 -me chamo Samella Natally Ferreira 
 
--estou estudandao no alura 😿
+-estou estudando no alura 😿
 
 -amo meus amigos e minha escola 🥰
 
