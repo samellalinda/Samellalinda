@@ -7,4 +7,4 @@
 -amo meus amigos e minha escola 🥰
 
 
-![]_(https://tenor.com/pt-BR/view/levin-the-doctor-baby-yoda-punching-fight-shut-up-gif-26309171).
+![.]_(https://tenor.com/pt-BR/view/levin-the-doctor-baby-yoda-punching-fight-shut-up-gif-26309171).
