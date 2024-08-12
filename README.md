@@ -1,6 +1,7 @@
 ## bem vindos ao meu perfil amigos! 😽
 
 -me chamo Samella 
+
 -estou estudando no alura 😿
 
 -amo meus amigos e minha escola 🥰
